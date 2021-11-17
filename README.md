@@ -1,4 +1,4 @@
-<image src="https://user-images.githubusercontent.com/93303277/139381082-de64c59b-a36a-431e-92a9-7e3bb4fc9aee.png" width="100" height="100">
+<image src=https://media.discordapp.net/attachments/884703572682502164/910356595228172338/TG.jpg>
 
 # FAQ---Team-TG
 
