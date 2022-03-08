@@ -28,25 +28,25 @@ Exclusive perms and channels.
 In the top of the member list of the server.
 Special chat/talk with Team TG about updates/events.
 Priority in Public Talkshows and Sponsor the only talk show every month. (if possible)
-You will get exclusive wallpapers of TECH GAMING for your mobile or desktop platforms.
+You will get exclusive wallpapers of Truzo for your mobile or desktop platforms.
 
 
 
-#4: How to suggest anything about this server or to TECH GAMING? 
+#4: How to suggest anything about this server or to Truzo? 
 
-If you want to suggest anything about this server or to TECH GAMING and want to help the Management team with your innovative ideas. Feel free to suggest it, we appreciate such participation. Go to #commands and suggest by using this command ,suggest <your_suggestion>. Example: ,suggest add count game.
+If you want to suggest anything about this server or to Truzo and want to help the Management team with your innovative ideas. Feel free to suggest it, we appreciate such participation. Go to #commands and suggest by using this command ,suggest <your_suggestion>. Example: ,suggest add count game.
 
 
 
-#5: Want to appeal a ban you received on the TECH GAMING Official Discord Server? 
+#5: Want to appeal a ban you received on the Truzo Gamerz Official Discord Server? 
 
 If so, you're in the right place! Here, you can quickly send us your appeal without needing to send a DM to a member of the @Staff! [Click here to get ban appeal form!](https://forms.gle/NRxovS9y2hMzVFQJ7)
 
 
 
-#6: Does TG come online? 
+#6: Does Truzo come online? 
 
-Yes, of course, TG use to come online regularly on Discord. Generally, he comes for editing videos and playing games. He comes to voice chat to talk to his family i.e. his fans.
+Yes, of course, Truzo use to come online regularly on Discord. Generally, he comes for editing videos and playing games. He comes to voice chat to talk to his family i.e. his fans.
 
 
 
